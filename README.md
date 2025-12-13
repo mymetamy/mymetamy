@@ -1,4 +1,3 @@
-<p align="center"> 𝔪𝔬𝔬𝔫𝔰𝔥𝔢𝔩𝔩/𝔰𝔥𝔢𝔩𝔩𝔢𝔳𝔦𝔰𝔦𝔬𝔫 𝔟𝔢𝔱𝔱𝔢𝔯 𝔶𝔬𝔲 𝔨𝔫𝔬𝔴 𝔴𝔥𝔬 𝔶𝔬𝔲 𝔞𝔯𝔢 𝔩𝔬𝔰𝔢𝔯 :///
-<p align="center" width="500%"> <img width="500" height="580" alt="Screenshot 2025-11-23 at 12 37 54 PM" src="https://github.com/user-attachments/assets/c72c16de-5842-4f45-8f8f-a8879867b618" />
+<p align="center"> ''08:31 AM[Pony] whispers: I Hope something Bad happens on your birthday just like How You mocked and manipulated all Of Your Victims,, Yo watch me hit a clip on my hall of victims
 <p align="center"> YO. ok bro
 <p align="center" width="500%"> <img width="500" height="580" alt="Screenshot 2025-11-23 at 12 37 54 PM" src="https://github.com/user-attachments/assets/b03c36a4-b077-4a94-87ba-42fed8c78c6a" />
