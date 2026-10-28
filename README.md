@@ -1,4 +1,4 @@
-<p align="center">  YAOIGEM
+<p align="center">  aweee
 <p align="center" width="500%"> 
-<img width="1282" height="1282" alt="screaming"  src="https://github.com/user-attachments/assets/86cbd93b-7a51-47c1-80ec-c59bf3dae6a2" />
+<img width="1282" height="1282" alt="yuri"  src="https://github.com/user-attachments/assets/1fb83eb0-cb0b-4df8-885e-a67a844dfcbb" />
 
